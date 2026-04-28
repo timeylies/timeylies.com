@@ -1,2 +1,2 @@
 # timeylies.com
-today my birthday!! 
+my temporary website
